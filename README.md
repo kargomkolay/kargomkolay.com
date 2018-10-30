@@ -1,0 +1,2 @@
+# kargomkolay.com
+argomkolay.com
